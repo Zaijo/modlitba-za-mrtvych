@@ -6,7 +6,7 @@
 
 ## Motivácia
 
-Táto modlitba znie v pôvodnej forme *"Odpočinutie večné daj im, Pane, a svetlo večné, nech im svieti, nech odpočívajú v pokoji. Amen"*. Táto forma nám pripadá tažká a smutná, preto sa modlíme *"Radosť večnú ..."*
+Táto modlitba znie v pôvodnej forme *"Odpočinutie večné daj im, Pane, a svetlo večné nech im svieti, nech odpočívajú v pokoji. Amen"*. Táto forma nám pripadá tažká a smutná, preto sa modlíme *"Radosť večnú ..."*
 
 ## Zázemie
 
